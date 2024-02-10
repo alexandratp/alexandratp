@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @alexandratp
+- 👀 I’m interested in Astrophysics and Cosmology
+- 🌱 I’m currently learning about the Hubble tension
